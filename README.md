@@ -17,3 +17,13 @@
       + hỗn tạp: đâu đúng, đâu sai
       + Thế hệ
       + Thời đại: biến động, chóng mặt, khôn lường => mọi giá trị bị thách thức, niềm tin đổ vỡ, 
+  + Sống để làm gì?
+	  => Để sống
+	+ Sống là gì?
+		- Sống và Tồn tại/Chết khác nhau ntn?
+		- Sống vs Tồn tại: Tình yêu - rộng (đôi lứa, yêu người, công việc, tổ quốc, đồng bào => bigest = bản thân (thân thể, bản thể)….)
+	+ Lam tn cân bằng công việc và cs? 
+    => công việc + gia đình + ... = cs
+    
+- Người
+  + Vận hành xoay quanh giá trị con người!!
