@@ -58,3 +58,9 @@
 		Bạn bè
 		Tự Thân
 		=> Làm sao bớt thử sai trong quá trình thử cách sống?
+		
+# 2023/04/14
+- Gửi người đang sống - Đại Tướng Phạm Văn Trà
+- Tập sách kết thúc cuộc chiến tranh 30 năm
+
+
